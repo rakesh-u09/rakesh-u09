@@ -9,7 +9,7 @@
 
 - 👨‍💻 Portfolio [https://rakeshwebapp-c859a.web.app/](https://rakeshwebapp-c859a.web.app/)
 
-- 📫 How to reach me **rakeshu.official@gmail.com**
+- 📫 How to reach me **rakeshu.0904@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
